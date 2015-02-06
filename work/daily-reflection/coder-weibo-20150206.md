@@ -7,6 +7,7 @@
   
 * **wrong**
   1. so fucking sleepy... barely do anything
+  2. unwillingly to talk about your feelings and thinkings in sprint meeting
   
 ## take away
 
@@ -16,3 +17,4 @@
 * ~~less wandering around in mind~~
 * more organized in work
 * more detailed and more organized and more patient
+* just open up...
