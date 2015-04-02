@@ -12,6 +12,7 @@ all the unknown, the wonder, the surprise
 
 ## doing
 ING, touch it, feel it, enjoy it
+* explain things at 6th grade level to you
 * your study, my job
 * planning our first travel
 
