@@ -1,2 +1,3 @@
 # mvpanda
-work+life+myself+others
+
+life+myself+others
